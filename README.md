@@ -1,1 +1,0 @@
-parapentelaclusaz.github.io
